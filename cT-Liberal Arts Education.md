@@ -1,4 +1,4 @@
-名词：
+术语：
 Liberal Arts Education
 
 解释：
